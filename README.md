@@ -1,1 +1,1 @@
-### 请去 https://aruirui7.github.io 访问
+#### 访问 http://ruirui.ml
